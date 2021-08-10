@@ -1,2 +1,2 @@
 # Wildlife
-[follow the link](https://lisichkasestrichka.github.io/Wildlife/)
+[follow the link](https://Llorenn.github.io/Wildlife/)
